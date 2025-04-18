@@ -33,3 +33,7 @@ The Projects section features two major projects that I’m proud of. The first 
 
 
 ![Image](https://github.com/user-attachments/assets/39320dce-937e-43cd-9d79-bbdabdea3d30)
+
+
+
+![Image](https://github.com/user-attachments/assets/63547324-4707-4dfe-adb7-44629ed8d897)
