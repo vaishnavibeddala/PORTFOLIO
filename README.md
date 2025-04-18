@@ -24,3 +24,7 @@ The Projects section features two major projects that I’m proud of. The first 
 
 
 ![Image](https://github.com/user-attachments/assets/7535697f-f376-49c7-a2ff-cfad66c7393c)[](url)
+
+
+
+![Image](https://github.com/user-attachments/assets/6f04b0eb-82c9-4b7c-8ff0-55bdf692aafc)
