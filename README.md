@@ -28,3 +28,8 @@ The Projects section features two major projects that I’m proud of. The first 
 
 
 ![Image](https://github.com/user-attachments/assets/6f04b0eb-82c9-4b7c-8ff0-55bdf692aafc)
+
+
+
+
+![Image](https://github.com/user-attachments/assets/39320dce-937e-43cd-9d79-bbdabdea3d30)
